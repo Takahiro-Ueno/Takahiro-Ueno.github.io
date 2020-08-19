@@ -1,1 +1,0 @@
-# Takahiro-Ueno.github.io
